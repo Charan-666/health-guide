@@ -1,2 +1,2 @@
 # health-guide
-documents all your worout routines
+documents all your workout routines
